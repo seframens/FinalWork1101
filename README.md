@@ -19,4 +19,4 @@
 
 ## Авторы
 
-* **Kirill Klyushanov** - *Final Work* - [Перейти к великому создателю](https://github.com/PurpleBooth)
+* **Kirill Klyushanov** - *Final Work* - [Перейти к великому создателю](https://vk.com/anapa2077)
